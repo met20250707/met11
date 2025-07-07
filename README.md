@@ -19,4 +19,4 @@
 
 这些平台不仅提供免费的日本AV资源，还保证了优质的播放体验和高质量的内容。如果你在寻找日本AV免费资源，以上平台无疑是一个不错的选择，能满足你对影片质量和观看体验的需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/met20250707/met11 ）</span>
